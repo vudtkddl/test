@@ -5,15 +5,14 @@
 (●'◡'●) 초보 개발자
 <h3>
 <h3>
-(❁´◡`❁) 
+(❁´◡`❁) 취미는 게임즐기기 
 <h3>
 <h3>
-o((>ω< ))o
+👍연락처: vudtkddl1189@gmail.com
 <h3>
-https://img.shields.io/github/languages/count/beygee/survive
-https://img.shields.io/github/languages/top/beygee/survive
-https://img.shields.io/github/languages/code-size/beygee/survive
-https://img.shields.io/github/repo-size/beygee/survive
-https://img.shields.io/github/issues/beygee/survive
-https://img.shields.io/github/commit-activity/w/beygee/survive
-https://img.shields.io/github/last-commit/beygee/survive
+<h3>
+세명컴퓨터고등학교 스마트보안솔루션과 학생
+<h3>
+<h3>
+😆😃😊😂🤣😍😁😒😜🤔😛😮😗
+<h3>
